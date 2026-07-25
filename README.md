@@ -1,5 +1,7 @@
  ## 🎬 Demo
   
-  [![Watch the
-  demo](https://img.shields.io/badge/▶-Watch_Demo-blue)](https://github.com/ShebMichel/videos/blob/main/a
-  i_for_planet.mp4)
+  
+
+https://github.com/user-attachments/assets/06067f51-ac40-4fe7-bea3-49e5e70b7c93
+
+
